@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @hasnaintawsif
+- 👀 I’m interested in Machine Learning, Digital Banking Innovation.
+- 🌱 I’m Passioned about Digital Banking
+- 💞️ I’m looking to collaborate on Digital Banking Staartup
+- 📫 How to reach me ... WhatsApp/Gmail : +8801875188148 / hasnaintawsif807@gmail.com
+- ⚡ Fun fact: "I'll do it" means: I can't make any commitment about this! ha ha...
